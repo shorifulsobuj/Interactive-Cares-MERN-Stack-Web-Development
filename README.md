@@ -1,1 +1,1 @@
-This r.p. is close
+This RP is close.
